@@ -29,6 +29,6 @@
 结语
 在寻找“日本AV免费”资源时，选择一个安全、高清且合法的平台，可以让你避免潜在的风险，享受更好的观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ss20250704/ss02 ）</span>
 
 
